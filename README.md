@@ -1,2 +1,0 @@
-# Kinley
-Kinley Company
